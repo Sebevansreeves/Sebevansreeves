@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 I'm Sebastian Evans Reeves 🌱 I’m currently studying maths at Queen Mary University of London
 
 <!--
 **Sebevansreeves/Sebevansreeves** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
